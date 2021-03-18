@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wp-dpa
+- 👀 I’m interested in writing a README.
+- 🌱 I’m currently learning? Sure.
+- 💞️ I’m looking to collaborate on existence.
+- 📫 How to reach me shall remain a mystery.
